@@ -8,5 +8,4 @@ Cada um vai fazer uma pag... porem um de cada vez menos o victor pq ele éum lix
 
 O victor vai trabalhar com o Renan e pegar no m�nimo 20 livros com todos os atributos completos requeridos pelo prof
 
-SEMPRE OLHE ESSE ARQUIVO, POIS TODOS AS ATUALIZAÇÕES SERÃO FEITAS AQUI
-
+SEMPRE OLHE ESSE ARQUIVO, POIS TODAS AS ATUALIZACOES SERAO FEITAS AQUI
